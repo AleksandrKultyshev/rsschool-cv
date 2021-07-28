@@ -6,4 +6,4 @@
 4. _Code examples:_
 5. _Work experience:_
 6. _Education:_
-7. _English language:_
+7. _English language:_ A2 Pre-Intermediate
